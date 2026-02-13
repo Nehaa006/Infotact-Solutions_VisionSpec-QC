@@ -1,0 +1,1 @@
+# Infotact-Solutions_VisionSpec-QC
